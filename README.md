@@ -1,6 +1,6 @@
 # Hi, Hello, Howdy! :wave: # 
 
-I'm Kat. :sparkles:
+I'm Kat :sparkles:
 
 * :woman_student: MBA Candidate at London Business School
 * :chart_with_upwards_trend: Finance undergrad from GWU & LSE
