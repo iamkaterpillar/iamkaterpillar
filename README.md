@@ -1,4 +1,4 @@
-# Hi, Hellow, Howdy! :wave: # 
+# Hi, Hello, Howdy! :wave: # 
 
 I'm Kat. :sparkles:
 
