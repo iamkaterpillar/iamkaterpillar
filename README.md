@@ -2,7 +2,7 @@
 
 I'm Kat :sparkles:
 
-* :woman_student: MBA from at London Business School
+* :woman_student: MBA from London Business School
 * :chart_with_upwards_trend: Finance undergrad from GWU & LSE
 * :rocket: Product at Bebop & Wintermute
 * :tropical_fish: Avid scuba diver and traveller
